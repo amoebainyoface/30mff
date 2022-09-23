@@ -3,7 +3,7 @@ Saiki's Comm Lab Repository 30MFF
 
 
 Project Name: 
-Thriftin’( A Commercial for Al Yousef Center Abu Dhabi)
+<i>Thriftin’</i> ( A Commercial for Al Yousef Center Abu Dhabi)
 
 Project Description:
 The project basically came out from an impromptu trip to the Al Yousef Center thrift shop which is a semi-popular destination in terms of thrift shopping in the UAE. Being a 15 min bus ride away from Saadiyat Island and also providing much more affordable and sustainable form of buying clothes as compared to fast fashion stores in the malls, the concept pretty much boils down to making a commercial for the thrift store. Through this commercial, the aim is to raise awareness in a fun and eclectic way to inspire a connection to this unseen, ignored and previously stigmatised shopping model because of heavy abundance of second-hand material. 
